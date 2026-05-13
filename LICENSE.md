@@ -1,4 +1,4 @@
-
+IPVanish rare Plugin: PPTP-support & P2P-support is the best IPVanish plugin, featuring PPTP-support and P2P-support. Secure, fast, and optimized for privacy.
 
 
 
